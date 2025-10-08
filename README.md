@@ -4,4 +4,4 @@ I’m a **Business & Data Analyst** passionate about building data-driven system
 
 Beyond analytics, I’m interested in how great **products and companies** are built - where data meets storytelling, design, and execution. Outside of work, I love staying active, playing soccer, reading biographies & non fiction books, and explore new food spots and ideas.
 
-📫 [faizan.bhutto17@gmail.com](mailto:faizan.bhutto17@gmail.com) • [Portfolio](https://faizanbhutto.com) • [LinkedIn](https://linkedin.com/in/faizanbhutto) • [GitHub](https://github.com/bhutto17)
+📫 [faizan.bhutto17@gmail.com](mailto:faizan.bhutto17@gmail.com) • [Portfolio](https://faizanbhutto.com) • [LinkedIn](https://linkedin.com/in/faizanbhutto)
